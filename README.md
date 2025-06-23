@@ -21,8 +21,6 @@ Sou apaixonado por tecnologia e estou focado em aprimorar minhas habilidades com
 ### 🌐 Links úteis
 
 - [Meu LinkedIn](https://www.linkedin.com/in/andyhcfoster)
-- [Meu Portfólio (se tiver)](https://)
-- [Currículo em PDF (opcional)](https://)
 
 ---
 
